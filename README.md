@@ -1,1 +1,0 @@
-# aluraestudante-primeiro-repositorio
